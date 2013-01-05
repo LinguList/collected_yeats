@@ -1,0 +1,22 @@
+A SONG
+
+I THOUGHT no more was needed
+Youth to prolong
+Than dumb-bell and foil
+To keep the body young.
+*O who could have foretold
+That the heart grows old?*
+
+Though I have many words,
+What woman's satisfied,
+I am no longer faint
+Because at her side?
+*O who could have foretold
+That the heart grows old?*
+
+I have not lost desire
+But the heart that I had;
+I thought 'twould burn my body
+Laid on the death-bed,
+*For who could have foretold
+That the heart grows old?*
