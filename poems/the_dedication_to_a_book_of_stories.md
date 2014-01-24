@@ -1,5 +1,4 @@
-THE DEDICATION TO A BOOK OF STORIES  
-SELECTED FROM THE IRISH NOVELISTS  
+THE DEDICATION TO A BOOK OF STORIES SELECTED FROM THE IRISH NOVELISTS  
   
 THERE was a green branch hung with many a bell  
 When her own people ruled this tragic Eire;  
